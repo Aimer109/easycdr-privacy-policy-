@@ -1,1 +1,0 @@
-# easycdr-privacy-policy-
